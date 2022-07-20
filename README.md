@@ -1,5 +1,1 @@
 # 00git
-sdklhfkds;hifopAU[DYIdaudgogduiDSUIiwoDSH
-DSlkdgsjkLDGSUguwieusdhs;DKWIOIPUIODHJKdhs
-asdjkhwioishDDSHOIHIOAUidshalkjdhdsaowiejklsaj
-AWOIEUIOiodoHRHEIOISPOFIsoyiweJSDKLAdiowe
